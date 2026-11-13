@@ -1,0 +1,1 @@
+# BOOKMASTER AI 1.0 PRO Core Modules
